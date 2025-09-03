@@ -3,5 +3,4 @@ its just a color and judgment edit, that's it
 ![screenshot](https://raw.githubusercontent.com/notreplcu/osu-skins/main/tekkito2-edit-replcu-edit.jpg)
 
 # [-                    replcu                    -](https://www.dropbox.com/scl/fi/24pvecpkauyaow1yzar7y/replcu.osk?rlkey=lfxxm16066etl5o83e3sdifxw&st=pnas72si&dl=0) (edit of myucchii's skin again)
-just some editing and mixed other skins, will constantly change
-i'll add a picture later
+just some editing and mixed other skins, will constantly change. i'll add a picture later
